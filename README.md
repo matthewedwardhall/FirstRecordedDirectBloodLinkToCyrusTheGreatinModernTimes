@@ -1,6 +1,6 @@
 # FirstRecordedDirectBloodLinkToCyrusTheGreatinModernTimes
 Matthew Edward Hall, First Recorded Direct Blood Link To Cyrus The Great, Messiah of The Old Testament, in Modern Times
-
+https://matthewedwardhall.org/propheticbloodline/linktocyrus
 
 600 BE Cyrus II The Great
 550 BE Atossa of Persia Daughter of Cyrus The Great
